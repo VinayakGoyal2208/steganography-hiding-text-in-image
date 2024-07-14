@@ -9,7 +9,6 @@ STEGANOGRAPHY IN AUDIO
 STEGANOGRAPHY IN VIDEO
 You can use this for your college and University Project Submission.
 
----------------------------------------------------------------------------------------------------------------------------------------------------
 Hi there 👋
 You Can use this Beautiful Project for your college Project and get good marks too.
 
