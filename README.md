@@ -12,12 +12,12 @@ You can use this for your college and University Project Submission.
 Hi there 👋
 You Can use this Beautiful Project for your college Project and get good marks too.
 
-Email me Now vinayakgoyal86@gmail.com to get this Full Project Code, PPT, Report, Synopsis, Video Presentation and Research paper of this Project.
+Email me Now vinayakgoyal2208@gmail.com to get this Full Project Code, PPT, Report, Synopsis, Video Presentation and Research paper of this Project.
 
 Need Code, Documents ?
 
 How to Reach me :
 
-Mail : vinayakgoyal86@gmail.com
+Mail : vinayakgoyal2208@gmail.com
 
 Mail me for Projects Help 🙏🏻
